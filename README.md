@@ -2,7 +2,7 @@
 
 I'm just playing around for now, can't wait to see how far I can go with all of this! 
 
-*I'm sensitive and can't handle unprompted criticisms yet, thanks!*
+*I'm sensitive and can't handle unprompted criticism yet, thanks!*
 
 <!--
 **alxssa-b/alxssa-b** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
